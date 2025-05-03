@@ -1,2 +1,0 @@
-# shakeeelmohamed.github.io
-Portfolio
